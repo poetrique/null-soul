@@ -20,3 +20,18 @@
 - - -
 
 #### [what is a soul for?](#)
+
+i cut my dreads  
+to clear my head  
+they want my heart  
+i take theirs instead  
+
+i am on the edge  
+of a golden avenue  
+patience is a virtue  
+
+i have waited  
+my pay is due  
+
+[=POETRIQUE=](https://instagram.com)  
+[Nullthefirst &copy;](https://instagram.com) Dec 2, 2018
