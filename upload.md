@@ -20,6 +20,6 @@
 ### [Home](./README.md) | [Upload](./upload.md)
 
 - - -
-## <span style="text-decoration: underline">Upload</span>
+## <span style="text-decoration: underline; text-decoration-color: #eb9605;">Upload</span>
 
 ##### <i class="em em-smiley"></i> Loading ...
