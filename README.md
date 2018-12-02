@@ -18,6 +18,5 @@
 ### [Content](./README.md) | [Upload](./upload.md)
 
 - - -
-## <span style="text-decoration: underline; text-decoration-color: #eb9605;">Content</span>
 
-# what is a soul for?
+#### [what is a soul for?](#)
