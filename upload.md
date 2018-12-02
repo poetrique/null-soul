@@ -17,7 +17,7 @@
 </head>
 
 <!-- Main Links -->
-### [Home](./README.md) | [Upload](./upload.md)
+### [Content](./README.md) | [Upload](./upload.md)
 
 - - -
 ## <span style="text-decoration: underline; text-decoration-color: #eb9605;">Upload</span>
