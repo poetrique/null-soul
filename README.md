@@ -43,13 +43,13 @@ my pay is due
 
 run away from reality  
 swim close to my soul  
-and achieve you every fantasy  
+and achieve your every fantasy  
 
-become a hero from the past  
-a prophet, loud & sharp  
-a king with an ivory crown
+become a hero ine  
+a priestess, loud & sharp  
+a queen with an ivory crown
 
-do you believe in gigbaytes,
+do you believe in gigbaytes,  
 i think in terabytes
 
 [=POETRIQUE=](https://instagram.com)  
