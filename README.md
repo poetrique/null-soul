@@ -20,13 +20,28 @@
 <!-- Poetry -->
 - - -
 
+#### [love me not](#)
+
+moving back to the  
+chalkboard, to the blueprint  
+to the basics  
+
+my demons digital  
+sing a thousand songs  
+love me not  
+
+[=POETRIQUE=](https://instagram.com)  
+[Nullthefirst &copy;](https://instagram.com) Dec 3, 2018
+
+- - -
+
 #### [blink if you can](#)
 
 run away from reality  
 swim close to my soul  
 and achieve your every fantasy  
 
-become a hero ine  
+become a heroine  
 a priestess, loud & sharp  
 a queen with an ivory crown
 
