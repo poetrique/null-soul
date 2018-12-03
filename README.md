@@ -20,6 +20,24 @@
 <!-- Poetry -->
 - - -
 
+#### [blink if you can](#)
+
+run away from reality  
+swim close to my soul  
+and achieve your every fantasy  
+
+become a hero ine  
+a priestess, loud & sharp  
+a queen with an ivory crown
+
+do you believe in gigbaytes,  
+i think in terabytes
+
+[=POETRIQUE=](https://instagram.com)  
+[Nullthefirst &copy;](https://instagram.com) Dec 3, 2018
+
+- - -
+
 #### [what is a soul for?](#)
 
 i cut my dreads  
@@ -36,21 +54,3 @@ my pay is due
 
 [=POETRIQUE=](https://instagram.com)  
 [Nullthefirst &copy;](https://instagram.com) Dec 2, 2018
-
-- - -
-
-#### [blink if you can](#)
-
-run away from reality  
-swim close to my soul  
-and achieve your every fantasy  
-
-become a hero ine  
-a priestess, loud & sharp  
-a queen with an ivory crown
-
-do you believe in gigbaytes,  
-i think in terabytes
-
-[=POETRIQUE=](https://instagram.com)  
-[Nullthefirst &copy;](https://instagram.com) Dec 3, 2018
