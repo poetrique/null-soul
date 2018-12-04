@@ -20,6 +20,23 @@
 <!-- Poetry -->
 - - -
 
+#### [roar](#)
+
+a man's limitation  
+is his fear  
+a god's limitation  
+is His care  
+
+so i commit  
+none of the sins above  
+come at me  
+if you dare  
+
+[=POETRIQUE=](https://instagram.com)  
+[Nullthefirst &copy;](https://instagram.com) Dec 4, 2018
+
+- - -
+
 #### [love me not](#)
 
 moving back to the  
