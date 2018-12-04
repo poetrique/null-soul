@@ -32,8 +32,8 @@ none of the sins above
 come at me  
 if you dare  
 
-[=POETRIQUE=](https://instagram.com)  
-[Nullthefirst &copy;](https://instagram.com) Dec 4, 2018
+[=POETRIQUE=](https://instagram.com/poetrique)  
+[Nullthefirst &copy;](https://instagram.com/poetrique) Dec 4, 2018
 
 - - -
 
@@ -47,8 +47,8 @@ my demons digital
 sing a thousand songs  
 love me not  
 
-[=POETRIQUE=](https://instagram.com)  
-[Nullthefirst &copy;](https://instagram.com) Dec 3, 2018
+[=POETRIQUE=](https://instagram.com/poetrique)  
+[Nullthefirst &copy;](https://instagram.com/poetrique) Dec 3, 2018
 
 - - -
 
@@ -65,8 +65,8 @@ a queen with an ivory crown
 do you believe in gigbaytes,  
 i think in terabytes
 
-[=POETRIQUE=](https://instagram.com)  
-[Nullthefirst &copy;](https://instagram.com) Dec 3, 2018
+[=POETRIQUE=](https://instagram.com/poetrique)  
+[Nullthefirst &copy;](https://instagram.com/poetrique) Dec 3, 2018
 
 - - -
 
@@ -84,5 +84,5 @@ patience is a virtue
 i have waited  
 my pay is due  
 
-[=POETRIQUE=](https://instagram.com)  
-[Nullthefirst &copy;](https://instagram.com) Dec 2, 2018
+[=POETRIQUE=](https://instagram.com/poetrique)  
+[Nullthefirst &copy;](https://instagram.com/poetrique) Dec 2, 2018
