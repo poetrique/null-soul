@@ -13,9 +13,26 @@
 </head>
 
 <!-- Main Links -->
-### [Content](./README.md)
+### [Poetry](./README.md)
 
 <!-- Poetry -->
+- - -
+
+#### [i whispered to her](#)
+
+a crumb of every  
+man's philosophy  
+births blasphemy  
+and not ideology  
+
+move royalty ebony  
+of the times eternal,  
+far away from space  
+to worlds warm and nocturnal
+
+[=POETRIQUE=](https://instagram.com/poetrique)  
+[Nullthefirst &copy;](https://instagram.com/poetrique) Dec 5, 2018
+
 - - -
 
 #### [roar](#)
