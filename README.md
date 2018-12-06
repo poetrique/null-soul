@@ -18,6 +18,23 @@
 <!-- Poetry -->
 - - -
 
+#### [fireson](#)
+
+i am heir to fire  
+wind to flame  
+learn my name  
+feed the fame  
+
+my demons dance  
+the open, naked  
+and ablaze  
+life is a maze  
+
+[=POETRIQUE=](https://instagram.com/poetrique)  
+[Nullthefirst &copy;](https://instagram.com/poetrique) Dec 6, 2018
+
+- - -
+
 #### [i whispered to her](#)
 
 a crumb of every  
