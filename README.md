@@ -26,7 +26,7 @@ learn my name
 feed the fame  
 
 my demons dance  
-the open, naked  
+in the open, naked  
 and ablaze  
 life is a maze  
 
